@@ -1,0 +1,1 @@
+# STARNAVI_TEST
